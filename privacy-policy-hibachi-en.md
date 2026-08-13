@@ -43,7 +43,7 @@ Your Rights
 - Deletion: Request deletion of personal data (subject to legal limits).
 - Restrict/opt-out: Object to processing for direct marketing purposes.
 
-To exercise these rights, contact us at privacy@hibachifivestar30a.com.
+To exercise these rights, contact us at fivestarshibachi@gmail.com.
 
 Choices for Advertising and Opt-Out
 
@@ -71,4 +71,4 @@ We may update this policy. Changes will be marked by the effective date above. P
 
 Contact
 
-If you have questions about this policy or wish to exercise your rights, contact: privacy@hibachifivestar30a.com
+If you have questions about this policy or wish to exercise your rights, contact: fivestarshibachi@gmail.com

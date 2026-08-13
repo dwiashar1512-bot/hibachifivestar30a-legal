@@ -43,4 +43,4 @@ These Terms are governed by the laws of the jurisdiction where our business is e
 
 10. Contact
 
-For questions about these Terms, contact: privacy@hibachifivestar30a.com
+For questions about these Terms, contact: fivestarshibachi@gmail.com

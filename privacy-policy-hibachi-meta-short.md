@@ -12,6 +12,6 @@ Advertising tools: we use Meta Pixel and/or Conversion API to send hashed identi
 
 Choices: you can opt out of interest-based ads via your Meta ad settings and disable cookies in your browser. For industry opt-out tools, visit https://www.aboutads.info/choices.
 
-Contact: privacy@hibachifivestar30a.com
+Contact: fivestarshibachi@gmail.com
 
 Full policy available at: https://hibachifivestar30a.com/privacy-policy

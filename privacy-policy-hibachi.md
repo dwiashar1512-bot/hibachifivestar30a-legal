@@ -43,7 +43,7 @@ Hak Anda
 - Penghapusan: Meminta penghapusan data (dengan batasan hukum).
 - Pembatasan/penolakan pemrosesan: Menolak pemrosesan untuk tujuan pemasaran langsung.
 
-Untuk menggunakan hak-hak ini, hubungi kami di privacy@hibachifivestar30a.com.
+Untuk menggunakan hak-hak ini, hubungi kami di fivestarshibachi@gmail.com.
 
 Pilihan untuk pengiklanan dan opt-out
 
@@ -71,7 +71,7 @@ Kami dapat memperbarui kebijakan ini. Perubahan akan ditandai dengan tanggal efe
 
 Kontak
 
-Jika Anda memiliki pertanyaan tentang kebijakan ini atau ingin menggunakan hak data Anda, hubungi: privacy@hibachifivestar30a.com
+Jika Anda memiliki pertanyaan tentang kebijakan ini atau ingin menggunakan hak data Anda, hubungi: fivestarshibachi@gmail.com
 
 Catatan untuk kebutuhan iklan Meta
 
